@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Arjun Subba
-- 👀 I’m interested in AI
+- 👀 I’m interested in AI Learning
 - 🌱 I’m currently learning basic coding
 - 💞️ I’m looking to collaborate on the project
 - 📫 How to reach me: email:-arjun18765official@gmail.com
